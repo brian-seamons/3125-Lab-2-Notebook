@@ -1,0 +1,1 @@
+Anybody with this link should be able to access my code directly from here. No promises on total accuracy, and I may have done things wrong lol. ChatGPT would be able to help you out, and I probably could too.
